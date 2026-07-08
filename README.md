@@ -1,0 +1,2 @@
+# Tugas1_Rekayasa-Komputasional_AlgoritmaGenetika_Nadia_105841104324_4B
+Tugas1_Rekayasa-Komputasional_AlgoritmaGenetika_Nadia_105841104324_4B
